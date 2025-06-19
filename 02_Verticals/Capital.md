@@ -2,54 +2,53 @@
 
 # ARKTIK Capital
 
-## Stewardship, Sovereignty, and Sustainable Return
+## Stewardship, Transparency, and Community Restoration
 
-ARKTIK Capital exists to restore what was lost in both personal and communal finance:  
-integrity, transparency, and true stewardship.  
-We do not chase profit for its own sake—we manage and multiply resources in service of a higher standard, for the good of every participant and the legacy of future generations.
+ARKTIK Capital is the stewardship and resource-management arm of ARKTIK, dedicated to restoring integrity, transparency, and opportunity to all we serve.  
+We operate exclusively for charitable, educational, and community purposes, ensuring every resource is managed to benefit the public and advance our mission.
 
 ---
 
 ## What Makes ARKTIK Capital Different?
 
-- **Hybrid Financial Model:**  
-  ARKTIK Capital bridges traditional finance and innovative, transparent models (including DeFi and cooperative economics), giving every participant access to resilient, future-proof solutions.
+- **Mission-Driven Stewardship:**  
+  We educate and empower individuals and families in financial literacy, stewardship, and long-term planning—always in service to our charitable purpose.
 
-- **Sovereign Stewardship:**  
-  We teach and enable individuals, families, and organizations to be wise stewards—preserving wealth, creating value, and ensuring every resource is deployed with integrity and purpose.
+- **Community Capital Initiatives:**  
+  Our resources are used for community development, microenterprise, relief, and restoration projects that benefit those in need, especially the exiled, the forgotten, and the ready.
 
 - **Transparency as Policy:**  
-  Every transaction, allocation, and decision is tracked, reported, and open for review.  
-  No hidden fees, no fine print, no conflicts of interest.
+  Every transaction and allocation is tracked, reported, and open for review.  
+  No hidden fees, no private benefit, no conflicts of interest.
 
 - **Return as Restoration:**  
-  Our vision of “return” is not just financial—it’s the restoration of dignity, independence, and legacy to those who have been exiled, excluded, or overlooked by traditional systems.
+  Our “return” is measured in restored dignity, increased opportunity, and generational legacy—never in private profit or enrichment.
 
-- **Mutual Benefit, Not Exploitation:**  
-  Every ARKTIK Capital offering is structured so that benefit is shared—no one rises at another’s expense. We do not participate in predatory lending, speculation, or extractive finance.
+- **Shared Benefit, Never Private Gain:**  
+  All capital is deployed to advance our exempt purposes, with every surplus reinvested in ARKTIK’s public benefit programs.
 
 ---
 
 ## Who Is ARKTIK Capital For?
 
-- Individuals and families seeking financial sovereignty and sustainable growth.
-- Communities, congregations, and organizations building toward generational legacy.
-- Partners and investors who value transparency, ethical returns, and shared success.
+- Individuals and families seeking financial literacy, resilience, and support for personal and community restoration.
+- Communities, congregations, and organizations building toward sustainable legacy and public benefit.
+- Partners, donors, and grantors committed to impact, transparency, and ethical stewardship.
 
 ---
 
 ## How to Engage
 
-- **Advisory & Planning:**  
-  Access personal and organizational financial planning, treasury management, and capital growth strategies.
-- **Investment & Savings Solutions:**  
-  Participate in vetted, mission-aligned investment pools and savings programs—traditional, cooperative, and DeFi options available.
-- **Partnership & Impact:**  
-  Collaborate on community projects, microenterprise development, or revenue-sharing initiatives, all tracked and governed by visible standards.
+- **Advisory & Education:**  
+  Access workshops, guides, and one-on-one support for financial literacy and stewardship.
+- **Community Development Programs:**  
+  Apply for or support microenterprise grants, relief initiatives, and restoration projects in line with our charitable mission.
+- **Impact Partnership:**  
+  Collaborate on projects that serve the public good, all governed by our uncompromising standards.
 
-**For consultation, onboarding, or partnership opportunities:**  
+**For program information, support, or partnership inquiries:**  
 info@arktikinitiative.org
 
 ---
 
-**ARKTIK Capital: Building Legacies, Restoring Dignity, Stewarding the Return.**
+**ARKTIK Capital: Stewarding Resources for Public Benefit, Dignity, and Lasting Return.**
