@@ -21,7 +21,7 @@ We do not chase trends, controversy, or applause. We curate, create, and amplify
   We capture and share the real stories of the exiled, the shamed, the forgotten, and the ready—those who have chosen to return and walk at a higher standard.
 
 - **Cinematic Universe, Real Impact:**  
-  Through the ARKTIK Cinematic Universe (SCU), we produce original series, documentaries, and VR experiences that bring our values to life and make the unseen visible.
+  Through the SyntheticA Cinematic Universe (SCU), we produce original series, documentaries, and VR experiences that bring our values to life and make the unseen visible.
 
 - **Faith Meets Innovation:**  
   We merge timeless principles with cutting-edge technology—storytelling that bridges the ancient and the emerging, the spiritual and the scientific.
