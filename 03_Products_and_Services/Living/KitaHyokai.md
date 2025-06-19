@@ -69,8 +69,8 @@ Rooted in honor, humility, and accountability, Kita Hyōkai transforms the rigid
 
 ## Getting Started
 
-- **Contact:** kita@arktikinitiative.org | 346-479-2529  
-- **Enrollment & Schedule:** [arktikinitiative.org/kita](https://arktikinitiative.org/kita)
+- **Contact:** J.Morris@arktikinitiative.org | 346-479-2529  
+- **Enrollment & Schedule:** [arktikinitiative.org](https://arktikinitiative.org)
 
 ---
 
