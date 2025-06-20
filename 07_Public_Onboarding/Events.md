@@ -1,4 +1,4 @@
-<img src="../../assets/ARKTIK%20Logo.png" alt="ARKTIK Logo" width="200">
+<img src="../assets/ARKTIK%20Logo.png" alt="ARKTIK Logo" width="200">
 
 # ARKTIK Events
 
