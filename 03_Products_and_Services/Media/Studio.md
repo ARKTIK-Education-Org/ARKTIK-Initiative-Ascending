@@ -9,6 +9,12 @@ Every track, video, and design that leaves this studio carries the mission of re
 
 ---
 
+### Coming Q1 2026
+
+The doors to ARKTIK Studio will open in early 2026 to those ready to align with our mission and values. Whether you’re a first-time creator, a seasoned professional, or someone searching for a creative home with purpose—this is your invitation to build legacy, not just content.
+
+---
+
 ### What Is ARKTIK Studio?
 
 - **A Creative Home:**  
@@ -20,7 +26,7 @@ Every track, video, and design that leaves this studio carries the mission of re
 
 ---
 
-### What We Offer
+### What We Offer (Available Q1 2026)
 
 - **Recording & Production:**  
   Music, spoken word, podcast, and narration—engineered with excellence, from grassroots to broadcast quality.
@@ -46,14 +52,15 @@ Every track, video, and design that leaves this studio carries the mission of re
 
 ---
 
-### Get Involved
+### Get Ready
 
-- **Book Studio Time / Submit a Project:**  
-  [arktikinitiative.org/studio](https://arktikinitiative.org/studio) or email studio@arktikinitiative.org
-- **Join a Workshop:**  
-  Check our calendar for upcoming hands-on sessions and mentorship opportunities.
-- **Partner With Us:**  
-  Media outlets, labels, schools, nonprofits—collaborate to restore narrative and dignity, one project at a time.
+- **Early Interest:**  
+  Want to be among the first to create, collaborate, or record with ARKTIK Studio?  
+  Email studio@arktikinitiative.org with your story, skills, or vision.
+- **Partner In Launch:**  
+  We welcome inquiries from media outlets, schools, nonprofits, and fellow visionaries interested in supporting the 2026 launch.
+- **Stay Updated:**  
+  Visit [arktikinitiative.org/studio](https://arktikinitiative.org/studio) for the latest announcements and pre-launch opportunities.
 
 ---
 
@@ -66,3 +73,4 @@ Every track, video, and design that leaves this studio carries the mission of re
 **Contact:**  
 studio@arktikinitiative.org  
 [arktikinitiative.org/studio](https://arktikinitiative.org/studio)
+
